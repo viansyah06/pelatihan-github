@@ -1,2 +1,1 @@
-sholat sek
-                                                                    
+fukumean
